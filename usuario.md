@@ -1,4 +1,4 @@
-# Amazon / Guía / Usuario
+Amazon / Guía / Usuario
 ---------------
 https://tinyurl.com/ya4ypgoh
 ---------------
