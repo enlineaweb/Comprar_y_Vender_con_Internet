@@ -18,3 +18,7 @@ Tienda en Línea Web
 ---------------
 http://bit.ly/2U2RCjQ
 ---------------
+Compra al Por Mayor Formulario
+---------------
+https://goo.gl/forms/Qaat5FFpRjBpWMtg2
+---------------
