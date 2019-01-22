@@ -22,3 +22,11 @@ Compra al Por Mayor Formulario
 ---------------
 https://goo.gl/forms/Qaat5FFpRjBpWMtg2
 ---------------
+Courier - Envío
+---------------
+https://tinyurl.com/yblxfpdc
+---------------
+Correo Postal Internacional
+---------------
+https://tinyurl.com/yagx23gz
+---------------
