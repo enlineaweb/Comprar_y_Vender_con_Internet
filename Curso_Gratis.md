@@ -9,5 +9,5 @@ Recibe pagos por Internet mediante Tarjeta de Débito / Tarjeta de Crédito / Pa
 ---------------------------------
 Toda la información en este enlace _ https://tinyurl.com/y63thkj3
 ---------------------------------
-Luego puedes hacer una donación en mi sitio web, con el botón Donar, aquí. _ https://tinyurl.com/y4zknkn5
+Luego puedes hacer una donación aquí. _ https://tinyurl.com/y4zknkn5
 ---------------------------------
