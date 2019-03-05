@@ -7,7 +7,7 @@ Empieza tu propio negocio en tu País con productos importados desde Internet.
 Activa una Tienda en Línea en Internet, y vende tus productos / no requiere saber programación ni diseño.
 Recibe pagos por Internet mediante Tarjeta de Débito / Tarjeta de Crédito / Paypal / Bitcoin.
 ---------------------------------
-Toda la información en este enlace / https://tinyurl.com/y63thkj3
+Toda la información en este enlace _ https://tinyurl.com/y63thkj3
 ---------------------------------
-Enviar y Recibir Dinero / Internet / Local / Donaciones / Botón Donar / Botón Comprar / Suscripciones / Bitcoin / Paypal / Envío / Dólar / https://tinyurl.com/y2lfk7q6
+Luego puedes hacer una donación en mi sitio web, con el botón Donar, aquí. _ https://tinyurl.com/y4zknkn5
 ---------------------------------
